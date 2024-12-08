@@ -1,5 +1,5 @@
-# Ecsedi Endre sigma🥶
-## Sigma Ecsedi Endre🤫🧏🏼‍♂️
+# superior programmer🥶
+## muzulmán-zsidó
 
 <!--
 **BalassyBence/BalassyBence** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
